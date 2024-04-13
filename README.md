@@ -1,3 +1,3 @@
-![](https://files.catbox.moe/t5ieml.png)
+![](https://files.catbox.moe/9ornaa.gif)
 
 [@euronias](https://github.com/euronias) alt!

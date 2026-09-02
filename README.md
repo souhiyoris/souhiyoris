@@ -6,4 +6,4 @@
 <br>
 <br>
 i cannot be bothered to remake my rentry
-<br> if you put yttd shipping discourse in my face more than once i'm just going to laugh at you
+<br> if you put yttd shipping discourse in my face more than once i will laugh at you as a human being
